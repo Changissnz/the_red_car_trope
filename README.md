@@ -26,7 +26,7 @@ Anglo-Americans might have been behind that event. The historical British were n
 With matters such as this, to ask for answers is to ask for incrimination, and then the blame game could very well go 
 to the person with the highest status or greatest capital. 
 
-For years after the red car incident, psychological campaigns was conducted surrounding that individual. The motive 
+For years after the red car incident, psychological campaigns were conducted surrounding that individual. The motive 
 was rationalized as being for information security purposes by the authorities. Then alternative motives perpetually became 
 rewritten for officially just cause, so as to sustain the psychological campaign. The psychological campaign was, indeed, 
 a multi-pronged solution to ensnare the "flies" and shoot down the "tigers" that became involved in the deception operation, 
